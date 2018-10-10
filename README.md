@@ -1,7 +1,10 @@
 # bordergore
 
-Jesus gonna save
-
+Jesus gonna save....
+//
+//
+//
 me
-
-bye
+//
+//
+bye!
